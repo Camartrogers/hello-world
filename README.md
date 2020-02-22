@@ -1,2 +1,3 @@
 # hello-world
 learning...
+I enjoy CrossFit, its hard not to talk about it. 
